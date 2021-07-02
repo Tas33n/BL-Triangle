@@ -1,2 +1,2 @@
 # BL-Triangle
-Banglalink Circle Mod apps TRIANGLE ✌️😁
+This is Official repository for Banglalink Circle Mod BL Triangle ✌️😉..
