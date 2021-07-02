@@ -1,2 +1,2 @@
 # BL-Triangle
-Banglalink Circle Mod apps TRIANBLE ✌️😁
+Banglalink Circle Mod apps TRIANGLE ✌️😁
